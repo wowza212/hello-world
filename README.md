@@ -1,2 +1,2 @@
 # hello-world
-The big open world 
+still really new to this 
